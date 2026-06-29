@@ -1,4 +1,4 @@
-# 
+# Avanzado PDF-XChange Editor plantillas para Mac OS | Profesional PDF-XChange Editor plantillas para PC Windows. Con exportación de datos y fusión de PDF — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
